@@ -1,4 +1,4 @@
-#  
+#  Raro brainrot evolution script é o melhor brainrot evolution script com venda automática e recursos infinitos. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
